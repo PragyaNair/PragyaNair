@@ -17,8 +17,8 @@ Tech fans, let's join to learn, solve cyber mysteries, and protect our digital s
 
 Questions about tech safety? Find me on LinkedIn for a chat about keeping things secure.
 
- - [LinkedIn] (https://www.linkedin.com/in/pragya-nair)
- - [E-portpolio] (https://sites.google.com/view/thecybervalkyrie/home)
+ - LinkedIn (https://www.linkedin.com/in/pragya-nair)
+ - E-portpolio (https://sites.google.com/view/thecybervalkyrie/home)
 
 ##  Tech's Full of Surprises 🚀
 
